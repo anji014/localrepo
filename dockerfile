@@ -1,2 +1,0 @@
-Hi Anji
-hi bahnu
